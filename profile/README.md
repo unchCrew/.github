@@ -12,4 +12,4 @@ If you're here for serious business, you're probably in the wrong place dawg.
 
 ---
 
-**⚠️ Disclaimer:** We take unserious things very seriously. Proceed with caution (and a sense of humor i guess).
+**⚠️ Disclaimer:** We take unserious things very seriously (wtf). Proceed with caution (and a sense of humor i guess).
