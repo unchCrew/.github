@@ -8,8 +8,7 @@ Welcome to **unchCrew**,  i don't know why i made this.
 
 If you're here for serious business, you're probably in the wrong place dawg.
 
-> **Don't waste your time — embrace it.**
+> **Don't waste your time.**
 
 ---
 
-**⚠️ Disclaimer:** We take unserious things very seriously (wtf). Proceed with caution (and a sense of humor i guess).
